@@ -1,0 +1,1 @@
+# Biblia-i-czarany-zakazy.
